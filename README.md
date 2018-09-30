@@ -1,3 +1,0 @@
-# TESIS_U_HL72
-
-cambio 16/09/2018
